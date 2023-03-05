@@ -1,2 +1,0 @@
-# wallpapers
-anime wallpapers
